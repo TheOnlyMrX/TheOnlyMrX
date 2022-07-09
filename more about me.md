@@ -7,4 +7,6 @@ He also sets an example to show how easy it is in the social media for any zany 
 There is no denying that his chats are terribly offensive, but this terrible offensiveness is a deliberate and unapologetic parody of the whole social media machine and a reflection of the human microcosm that that social media is. OR MAYBE IM JUST FUCKING RETARDED. 😜
 
 
-` Vastavikta aksar nirashajanak hoti hai ~ 💙 `
+
+
+btw why are you wasting your time reading this?
